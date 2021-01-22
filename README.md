@@ -1,1 +1,1 @@
-# Resume 👍 code for sesume
+# Resume 👍 code for résumé
